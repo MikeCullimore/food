@@ -11,8 +11,11 @@ Notes on:
 
 ## Recipes to write up
 
-* American pancakes, super thick!
+* Sourdough loaf adaptation
+* Ravioli
+    * Ham, scamorza and pea?
 * Chocolate tart, adapted from Lorraine Pascal.
+* Tarte au citron
 * Baguettes
 * Madeleines
     * When covering the trays with butter and flour, use a sieve otherwise clumps of flour in madeleine base!
@@ -21,7 +24,6 @@ Notes on:
     * Try chilling the trays beforehand.
 * Duck stock (Julia Child with tweaks e.g. chicken hearts: see Keep).
 * Steak sauce with cognac and butter
-* Steak marinade salt, pepper and olive oil the night before.
 * Pizza dough (needs work!)
     * Less yeast?
     * More water?
@@ -34,6 +36,10 @@ Notes on:
 * Simple batter (roast a whole chicken, shred it...)
 * Barbecue (plan/shopping list and recipes)
     * Jan's burgers: beef mince, oats, honey, bacon, egg, red onion...?
+* Curry: toast spices then grind, turmeric in hot oil, then garlic ginger onions chilli, ground spices at end: layering, cook hours before serving to let the spices work into the chicken. See [when to add spices](https://www.mindbodygreen.com/articles/when-to-add-spices-while-cooking)
+* French onion soup:
+    * Pete variant with ultimate stock.
+    * Knorr rich beef stock pot cheat variant.
 
 ## Books
 
@@ -52,6 +58,7 @@ Notes on:
 ## Methods
 
 * Bottled water for baking (because tap water so hard here).
+* Steak: marinade in salt, pepper and olive oil the night before.
 
 ## Ingredients
 
