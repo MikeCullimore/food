@@ -27,8 +27,8 @@ Serves three (two exhausted parents and one hyper toddler).
 1. Add the salt.
 1. Add the sugar.
 1. Sieve all the dry ingredients into the bowl.
-1. Whisk.
-1. Pour in the melted butter, whisk again.
+1. Whisk just enough to bring the batter together, _not_ until smooth: this helps make the pancakes light and airy.
+1. Pour in the melted butter, whisk (again, not too much).
 1. Add a little vegetable oil to the pan.
 1. Optional: put rings in the pan and give them time to get up to heat. (Will make the pancakes circular and helps them rise further.)
 1. Transfer the batter to a measuring jug: easier to pour.
