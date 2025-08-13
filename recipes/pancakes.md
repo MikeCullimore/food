@@ -10,7 +10,7 @@ Serves three (two exhausted parents and one hyper toddler).
 * 405g plain flour
 * 3 tsp baking powder
 * 1.5 tsp salt (fine sea salt)
-* 6 tbsp sugar (golden caster)
+* 6 tbsp sugar (granulated)
 * 1 tsp vegetable oil
 
 ## Method
