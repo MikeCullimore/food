@@ -10,6 +10,7 @@ Perfect—here’s a 2-day baguette de tradition recipe using both a poolish and
 
 - Increase quantities by roughly 1/3 so baguettes as long as the trays.
 - The autolyse was quite dry, never quite incorporated into the poolish, could feel lumps in the final dough. More water in autolyse and less in poolish?
+- Our oven doesn't seem to like max temperature and the baguettes scorched on the outside before bm fully baking in the centre. Try dropping to say 230°C.
 
 🥖 Traditional Baguette (4 loaves)
 
