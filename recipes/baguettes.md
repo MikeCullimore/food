@@ -2,8 +2,14 @@
 
 Perfect—here’s a 2-day baguette de tradition recipe using both a poolish and an autolyse, scaled to make 4 baguettes (~280–300g each). I’ll also answer the organic flour question just below the recipe.
 
+## A/B testing
 
----
+- 30th August batch: final prove: one pair of baguettes at ambient 45 minutes, the other in the fridge ... what difference did it make?
+
+## Next time
+
+- Increase quantities by roughly 1/3 so baguettes as long as the trays.
+- The autolyse was quite dry, never quite incorporated into the poolish, could feel lumps in the final dough. More water in autolyse and less in poolish?
 
 🥖 Traditional Baguette (4 loaves)
 
