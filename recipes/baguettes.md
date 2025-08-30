@@ -4,7 +4,7 @@ Perfect—here’s a 2-day baguette de tradition recipe using both a poolish and
 
 ## A/B testing
 
-- 30th August batch: final prove: one pair of baguettes at ambient 45 minutes, the other in the fridge ... what difference did it make?
+- 30th August batch: final prove: one pair of baguettes at ambient 45 minutes, the other in the fridge ... what difference did it make? Ambient prove very hard to score: curved new grignette with curved blade no use, instead used bare razor, dough so wet and sticky that couldn't cut deep and shape messed up.
 
 ## Next time
 
