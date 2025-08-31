@@ -2,9 +2,15 @@
 
 Perfect—here’s a 2-day baguette de tradition recipe using both a poolish and an autolyse, scaled to make 4 baguettes (~280–300g each). I’ll also answer the organic flour question just below the recipe.
 
-## A/B testing
+## Batches
 
-- 30th August batch: final prove: one pair of baguettes at ambient 45 minutes, the other in the fridge ... what difference did it make? Ambient prove very hard to score: curved new grignette with curved blade no use, instead used bare razor, dough so wet and sticky that couldn't cut deep and shape messed up.
+### 30th August 25
+
+Final prove: one pair of baguettes at ambient 45 minutes, the other in the fridge 16 hours.
+
+Ambient prove very hard to score: curved new grignette with curved blade no use, instead used bare razor, dough so wet and sticky that couldn't cut deep and shape messed up. One loaf split as a result. Oven at max temperature meant they scorched in places and needed to be taken out only a few minutes into second half of bake at the lower temperature.
+
+Cold prove harder to score if anything! But cuts opened up all right. Sprayed with water first (forgot with first batch). Tried 230°C first 10 minutes then 200°C for another 12. Beautiful golden brown all over and cuts opened up well!
 
 ## Next time
 
