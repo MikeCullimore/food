@@ -19,13 +19,17 @@ Adapted from [Matthew Ryle's recipe] (https://www.matthewryle.com/recipes/boeuf-
 - 1kg sweet silver skin onions
 - Can/bottle of beer 
 - 6 packs mushrooms
+- Flat leaf parsley
 
 ## Equipment
 
 - Stock pot (large say 10L)
 - Cast iron skillet
+- Large frying pan with lid.
 
 ## Method
+
+From memory so some steps may be missing or in wrong order; revisit this recipe next time you make it.
 
 - Dry brine the beef: trim excess fat, cut into large chunks, place in single layer on wire rack over tray, cover in salt, leave in fridge ideally overnight.
 - Reduce wine by half, leave to cool.
@@ -51,17 +55,13 @@ Adapted from [Matthew Ryle's recipe] (https://www.matthewryle.com/recipes/boeuf-
 - Cover with a cartouche, this keeps the flavour in. Put pan lid on. 
 - Cook on low for 3.5 to 4 hours or until the beef is very tender. 
 - Char the silver skin onions in a hot skillet. 
-- Then braise them in beer.
-
-...
-
-Discard first veg
-
-Reduce sauce
-
-Carrots in skillet butter olive oil, char them
-
-Onions ditto then braise in beer
-
-...
+- Then braise them in beer in large pan with the lid on, until reduced by half, roughly 30 minutes. 
+- Strain the sauce into a pan, reduce that to desired consistency.
+- Clean the pot.
+- Pick beef and pancetta out of sieve into the pot. Discard the rest (onions, carrots, garlic, herbs).
+- Peel second batch of carrots and cut into large chunks at an angle.
+- Char them in a hot skillet with butter and olive oil. Add to pot.
+- Add the onions and the reduced beer to the pot.
+- Sauté the mushrooms in butter and the rest of the garlic, grated. Add to the pot. 
+- Stir through chopped parsley.
 
