@@ -22,6 +22,7 @@
 - Plain flour
 - Baguette
 - Comté or Gruyère
+- Chives fresh
 
 ## Equipment
 
