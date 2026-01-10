@@ -4,7 +4,7 @@
 
 [Fallow recipe](https://youtu.be/MQCaj2Q6TYI?si=nmXHwwTMovTfCcxo)
 
-[Matthew Ryle's recipe](https://www.matthewryle.com/recipes/french-onion-soup-1)
+[Matthew Ryle's recipe](https://www.matthewryle.com/recipes/french-onion-soup-1) see also his [video](https://youtube.com/shorts/Ujc8RB1bwfY?si=oAE0AbNpB9HVL-M3)
 
 ## Ingredients
 
