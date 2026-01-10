@@ -22,6 +22,12 @@
 - Baguette
 - Comté or Gruyère
 
+## Equipment
+
+- Large deep casserole dish 
+- Spatula
+- Grater 
+
 ## Method
 
 TODO
